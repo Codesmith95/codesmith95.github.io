@@ -1,2 +1,2 @@
-# codesmith95.github.io
+# Triple Threat
 Triforce58’s website, operated and maintained by yours truly
